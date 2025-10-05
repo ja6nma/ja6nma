@@ -3,7 +3,7 @@
 📍 13 y.o. developer from Russia
 
 💻 **Languages I use:**
-Python • C++ • Batch • Lua
+Python • C++ • Batch • Lua • And more...
 
 🛠️ **My Projects:**
 Mainly focused on game cheats and experimental software... (Viruses and more)
