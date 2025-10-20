@@ -1,6 +1,6 @@
 👋 Hi, I’m Max (aka Ja6nMa / ITTM / Mr. Winlogon)
 
-📍 13 y.o. developer from Russia (I want to go to USA)
+📍 13 y.o. developer from Russia
 
 💻 **Languages I use:**
 Python • C++ • Batch • Lua • And more...
