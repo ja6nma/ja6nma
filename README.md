@@ -1,4 +1,4 @@
-👋 Hi, I’m Max (aka Ja6nMa / ITTM / Mr. Winlogon)
+👋 Hi, I’m Max (aka Ja6nMa / ITTM / Mr. Winlogon / Alprazolam / BPLR / Aderall)
 
 📍 13 y.o. developer from Russia
 
