@@ -15,4 +15,4 @@ CS:GO (with kamidere), Geometry Dash, GMod
 * Steam: [ITTM20230](https://steamcommunity.com/id/ITTM20230/)
 * Telegram: [@ITTM20230](https://t.me/ITTM20230) (Main) | @Ja6nMa (Banned)
 * DonationAlerts: [ITTM_xDDD](https://www.donationalerts.com/r/ittm_xddd)
-* DAlink: [IITM_xDDD](https://dalink.to/ittm_xddd)
+* DAlink: [ITTM_xDDD](https://dalink.to/ittm_xddd)
