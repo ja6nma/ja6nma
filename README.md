@@ -9,7 +9,7 @@ Python • C++ • Batch • Lua • And more...
 Mainly focused on game cheats and experimental software... (Viruses and more)
 
 🎮 **My favorite games:**
-CS:GO (with kamidere), Geometry Dash, GMod
+CS:GO (with kamidere.moe), Geometry Dash, GMod
 
 📫 **I'm on:**
 * Steam: [ITTM20230](https://steamcommunity.com/id/ITTM20230/)
