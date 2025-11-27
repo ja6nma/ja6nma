@@ -1,4 +1,4 @@
-👋 Hi, I’m Max (aka Ja6nMa / ITTM / Mr. Winlogon / Alprazolam / BPLR / Aderall)
+👋 Hi, I’m Maksim (aka Max / Ja6nMa / ITTM / Mr. Winlogon / Alprazolam / BPLR / Aderall)
 
 📍 13 y.o. developer from Russia
 
@@ -18,7 +18,7 @@ CS:GO (with kamidere.moe), Geometry Dash, GMod
 * DAlink: [ITTM_xDDD](https://dalink.to/ittm_xddd)
 * Discord: [ITTM](https://discordapp.com/users/1346375605205073940)
 * 
-------------------------------------------------------------------------------
+- - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - -
 
 ⚠️**Please note:**
 1) If you message me, I can't guarantee a reply
