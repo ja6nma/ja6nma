@@ -21,5 +21,5 @@ CS:GO (with kamidere.moe), Geometry Dash, GMod
 - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - -
 
 ⚠️**Please note:**
-1) If you message me, I can't guarantee a reply
-So if you do write, expect to response anywhere from 10 minutes to 5 days
+1) If you message me, I can't guarantee a reply.
+So if you do write, expect to response anywhere from 10 minutes to 5 days.
