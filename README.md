@@ -1,4 +1,4 @@
-👋 Hi, I’m Maksim (aka Max / Ja6nMa / ITTM / Mr. Winlogon / Alprazolam / BPLR / Aderall / CHa0skiDD)
+👋 Hi, I’m Maksim (aka Max / Ja6nMa / ITTM / Mr. Winlogon / Alprazolam / BPLR / Aderall / CHa0skiDD / MrN0B0dy)
 
 📍 13 y.o. developer from Russia
 
