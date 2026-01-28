@@ -12,7 +12,7 @@ Mainly focused on game cheats and experimental software... (Viruses and more)
 CS:GO (with kamidere.moe), Geometry Dash, GMod
 
 📫 **I'm on:**
-* Steam: [Duuble Cum](https://steamcommunity.com/id/CupDouble/)
+* Steam: [WHY DO YOU HATE?](https://steamcommunity.com/id/WHYDOYOUHATE)
 * Telegram: [@ITTM20230](https://t.me/ITTM20230) (Main) | @Ja6nMa (Banned)
 * DonationAlerts: [ITTM_xDDD](https://www.donationalerts.com/r/ittm_xddd) 
 * Discord: [ITTM](https://discordapp.com/users/1346375605205073940)
