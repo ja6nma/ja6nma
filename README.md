@@ -12,5 +12,5 @@ Mainly focused on game cheats and experimental software... (Viruses and more)
 CS:GO (with kamidere.moe), Geometry Dash, GMod
 
 📫 **I'm on:**
-* Telegram: [@ITTM20230](https://t.me/ITTM20230)
+* Telegram: [ΙΤΤΜλ₂+1(Ω)](https://t.me/ITTMxDDD)
 * Discord: [ITTM](https://discordapp.com/users/1346375605205073940)
