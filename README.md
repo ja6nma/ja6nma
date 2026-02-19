@@ -1,4 +1,4 @@
-👋 Hi, I’m Maksim (aka Max / Ja6nMa / ITTM / Mr. Winlogon / Alprazolam / BPLR / Aderall / CHa0skiDD / MrN0B0dy)
+👋 Hi, I’m Maksim (aka / Ja6nMa / ITTM)
 
 📍 13 y.o. developer from Russia
 
@@ -12,5 +12,5 @@ Mainly focused on game cheats and experimental software... (Viruses and more)
 CS:GO (with kamidere.moe), Geometry Dash, GMod
 
 📫 **I'm on:**
-* Telegram: [@ITTM20230](https://t.me/ITTM20230) (Main) | @Ja6nMa (Banned)
+* Telegram: [@ITTM20230](https://t.me/ITTM20230)
 * Discord: [ITTM](https://discordapp.com/users/1346375605205073940)
