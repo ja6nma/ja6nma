@@ -1,4 +1,4 @@
-👋 Hi, I’m Maksim (aka / Ja6nMa / ITTM)
+👋 Hi, I’m Maxim (aka / Ja6nMa / ITTM)
 
 📍 13 y.o. developer from Russia
 
