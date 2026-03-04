@@ -1,7 +1,5 @@
 👋 Hi, I’m Maxim (aka - Ja6nMa / ITTM)
 
-📍 13 y.o. developer from Russia
-
 💻 **Languages I use:**
 Python • C++ • Batch • Lua • And more...
 
