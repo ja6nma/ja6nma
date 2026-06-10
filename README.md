@@ -1,4 +1,4 @@
-👋 Hi, I’m Maxim (aka - Ja6nMa / ITTM / C4ACTLNVbIЙ / DRYAN')
+👋 Hi, I’m Ja6nMa (aka - ITTM / C4ACTLNVbIЙ / DRYAN' / 20230)
 
 💻 **Languages I use:**
 Python • C++ • Batch • Lua • And more...
